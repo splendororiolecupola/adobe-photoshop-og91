@@ -1,4 +1,4 @@
-# 
+# ultimate Adobe Photoshop for PC addons is the best Adobe Photoshop for PC addons with automated-actions and prepress-tools. Safe, reliable, and optimized for maximum performance.
 
 
 
